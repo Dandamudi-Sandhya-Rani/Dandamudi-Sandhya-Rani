@@ -12,6 +12,8 @@
 
 Currently learning **React Js**📖
 
+Currently working in **HCL as a software engineer** looking for a new opportunity to contribute and learn✨ 
+
 I love learning new technologies and am interested in trying anything new.🌱
   
 </div>
